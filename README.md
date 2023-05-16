@@ -8,4 +8,4 @@ No matter how thin you slice it, it's still balogna!
 
 ## Words of wisdom #2:
 
-<Add something here later>
+Never look a gift horse in the mouth!
